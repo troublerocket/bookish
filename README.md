@@ -1,2 +1,2 @@
 # bookish
-Books I've already read
+Books I've already read on my Kindle
